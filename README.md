@@ -3,6 +3,12 @@
 **Florida Department of Commerce · Office of Inspector General**
 Work assignment · Submitted November 4, 2026
 
+## Preview card
+
+[![Inspector General Work Exercise — Senior Management Analyst II–SES (Auditor) — Ultra 3D preview card](https://enmanueldmejia.com/assets/cards/hq-commerce_16x9_poster.webp)](https://enmanueldmejia.com/#work)
+
+▶ [Watch the Ultra 3D preview card](https://enmanueldmejia.com/#work) — animated, narrated, facial-synced.
+
 The work exercise issued to candidates for the Senior Management Analyst II–SES (Auditor) position (Position 40080042) in the Florida Department of Commerce's Office of Inspector General, submitted to the Director of Auditing, Sean Shrader.
 
 ## What I delivered
